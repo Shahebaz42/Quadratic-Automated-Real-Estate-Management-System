@@ -1,0 +1,1 @@
+# Quadratic-Automated-Real-Estate-Management-System
